@@ -1,0 +1,2 @@
+# premium-parchment-make-001-parchment-lime-soak-and-stretc
+Struggling to nail the perfect lime soak timing and stretching tension for your parchment? Most guides leave you guessing—this Notion template removes the guesswork with a structured, step-by-step system designed specifically for the critical lime soak and stretching phases.  The Parchment Lime Soak and Stretching Guide is a pre-built Notion templa
